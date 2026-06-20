@@ -1,173 +1,138 @@
-OEM Rice Cooker Manufacturer in China | Yolec Electric
-Professional Rice Cooker Manufacturing Partner for Global Brands
 
-Looking for a reliable rice cooker manufacturer in China?
+# Rice Cooker Manufacturer in China | OEM & ODM Supplier
 
-Yolec Electric is a professional OEM and ODM rice cooker manufacturer specializing in high-quality kitchen appliances for importers, distributors, wholesalers, retailers, and private label brands worldwide.
+We are a professional **rice cooker manufacturer in China** providing OEM & ODM production services for global importers, distributors, wholesalers, retailers, and private label brands.
 
-Since 2015, we have helped customers develop and manufacture customized rice cookers for various markets including Southeast Asia, the Middle East, South America, Europe, and Africa.
+Since 2015, we have been helping international buyers develop and manufacture high-quality rice cookers for different global markets including Southeast Asia, the Middle East, South America, Europe, and Africa.
 
-🌐 Official Website:
-https://www.yolec-electronics.com
+---
 
-📧 Email:
-Adrian@yolec-electronics.com
+## 🏭 Product Range
 
-Why Choose Yolec as Your Rice Cooker Manufacturer
-OEM & ODM Service
+We manufacture a wide range of rice cookers and related kitchen appliances:
 
-We provide complete OEM and ODM solutions including:
+- Basic Rice Cooker
+- Digital Rice Cooker
+- Multi-Function Rice Cooker
+- Smart Rice Cooker with LED Display
+- Mini Rice Cooker for Household Use
 
-Logo Printing
-Packaging Design
-Product Customization
-New Mold Development
-Market-Specific Configuration
-Certification Support
-Manufacturing Capability
-Established in 2015
-200+ Skilled Workers
-3 Production Lines
-Independent Quality Control Team
-Metal Stamping Workshop
-Plastic Injection Workshop
-Certifications
+We also produce related kitchen appliances:
 
-Our rice cookers can be produced according to international standards including:
+- Electric Kettle
+- Glass Electric Kettle
+- Coffee Kettle
+- Electric Pressure Cooker
+- Electric Lunch Box
 
-CE
-CB
-GS
-LFGB
-RoHS
-Rice Cooker Product Range
-Basic Rice Cookers
+---
 
-Suitable for:
+## 🧑‍🏭 Manufacturing Capability
 
-Supermarkets
-Retail Chains
-Promotional Projects
+- Established in 2015  
+- 200+ skilled workers  
+- 3 production lines  
+- In-house metal stamping workshop  
+- Plastic injection workshop  
+- Independent QC department  
+- OEM & ODM customization capability  
+- Export experience to global markets  
 
-Features:
+---
 
-One-touch cooking
-Non-stick inner pot
-Automatic keep warm
-Multifunction Rice Cookers
+## 📜 Certifications
 
-Features:
+Our products comply with international standards:
 
-Rice Cooking
-Porridge
-Soup
-Steaming
-Slow Cooking
+- CE  
+- RoHS  
+- LFGB  
+- CB  
+- GS  
 
-Suitable for:
+---
 
-Premium Markets
-Online Brands
-Appliance Distributors
-Digital Rice Cookers
+## 🔧 OEM & ODM Customization Service
 
-Features:
+We provide full customization solutions for global brands:
 
-LED Display
-Preset Timer
-Multiple Cooking Programs
-Intelligent Temperature Control
-OEM Rice Cooker Customization Options
+- Logo printing (private label)
+- Packaging design (color box / gift box)
+- Product structure customization
+- Color and material customization
+- Voltage customization (110V / 220V / 50Hz / 60Hz)
+- New mold development
 
-Yolec offers:
+---
 
-Custom Logo
+## 🔍 Quality Control System
 
-Private label branding available.
+Each rice cooker undergoes strict quality inspection:
 
-Custom Packaging
+- Incoming material inspection
+- Assembly inspection
+- Electrical safety testing
+- Function testing
+- Aging test
+- Final packaging inspection
 
-Color box and gift box design.
+This ensures stable performance and long-term reliability.
 
-Custom Housing Color
+---
 
-Different colors and finishes available.
-
-Custom Power Configuration
-
-Suitable for:
-
-110V Markets
-220V Markets
-50Hz
-60Hz
-Quality Control Process
-
-Each rice cooker undergoes:
-
-Incoming Material Inspection
-Assembly Inspection
-Electrical Safety Testing
-Function Testing
-Aging Test
-Final Packaging Inspection
-
-This ensures stable quality and long-term performance.
-
-Export Markets
+## 🌍 Export Markets
 
 Our rice cookers are exported to:
 
-Indonesia
-Philippines
-Vietnam
-Saudi Arabia
-UAE
-Brazil
-Mexico
-South Africa
+Indonesia, Philippines, Vietnam, Saudi Arabia, UAE, Brazil, Mexico, South Africa, and many other countries.
 
-and many other countries.
+---
 
-How to Choose a Reliable Rice Cooker Manufacturer
+## 🏠 Market Applications
 
-When selecting a rice cooker supplier, consider:
+Our products are widely used by:
 
-Factory Experience
-Production Capacity
-Quality Management System
-OEM Capability
-Certification Support
-Delivery Performance
+- Importers and distributors
+- Private label kitchen appliance brands
+- Retail chains and supermarkets
+- E-commerce sellers (Amazon, Shopify, etc.)
 
-Yolec Electric provides comprehensive support throughout the sourcing process.
+---
 
-Related Resources
-Electric Kettle Manufacturer
+## 🌐 Official Website
 
-https://github.com/yolec-electronics/electric-kettle-manufacturer
+https://www.yolec-electronics.com/
 
-Gooseneck Coffee Kettle Manufacturer
+---
 
-https://github.com/yolec-electronics/gooseneck-coffee-kettle-manufacturer
+## 🌐 GitHub Pages
 
-Kitchen Appliance OEM Solutions
+https://yolec-electronics.github.io/
 
-https://github.com/yolec-electronics/kitchen-appliance-oem
+---
 
-Contact Yolec Electric
+## 📩 Contact for OEM / ODM Inquiry
 
-Website:
-https://www.yolec-electronics.com
+Email: adrian@yolec-electronics.com  
 
-Product Page:
-https://www.yolec-electronics.com/products/rice-cooker/
+LinkedIn: https://www.linkedin.com/in/adrian2010/  
 
-LinkedIn:
-https://www.linkedin.com/in/adrian2010/
+YouTube: https://www.youtube.com/@yolec-electric-adrian  
 
-YouTube:
-https://www.youtube.com/@yolec-electric-adrian
+Product Catalog: https://online.fliphtml5.com/yolec-electronics/dbzn/#p=1  
 
-Email:
-Adrian@yolec-electronics.com
+---
+
+## ⭐ Why Global Buyers Choose Us
+
+We help international buyers source reliable kitchen appliances from China with:
+
+- Stable OEM/ODM production system  
+- Competitive factory pricing  
+- Strict quality control system  
+- Fast sample development  
+- Export-ready compliance for global markets  
+
+---
+
+## 🚀 China Kitchen Appliance Manufacturer Since 2015
